@@ -1,0 +1,1 @@
+En esta pagina lo que me interesa mostrar es un estilo de decoración y moda que en lo particular me gusta mucho. Dar a conocer el origen y los artistas que lo impulsaron, como así proponer sitios de moda y decoración a nivel nacional de productos estilo Shabby chic.
